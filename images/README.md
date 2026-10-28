@@ -1,0 +1,1 @@
+   Images for the GSLT website (logo, event photos) will go here.
